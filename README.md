@@ -1,4 +1,4 @@
-Hi, i'm Muhamad Hakam Faza, you can call me **Hakam**.
+Hi, I'm **Muhamad Hakam Faza**, you can call me **Hakam**.
 
 I'm from Pemalang, Central Java, Indonesian
 
